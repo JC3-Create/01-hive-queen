@@ -55,7 +55,7 @@ I’ll serve the story folks came for — and then slide the truth across the ba
 
 This cut leans brighter than the myth.  
 This batch hums lower than the legend.  
-This cart is a clean chorus, not a solo.
+This bowl is a clean chorus, not a solo.
 
 If they smile anyway, we did it right. If they frown, we still did it right — because the map just got better. The Hive can plot a course; I reserve the right to punch it.
 
